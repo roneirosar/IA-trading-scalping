@@ -1,1 +1,0 @@
-# IA-trading-scalping
